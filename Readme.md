@@ -1,9 +1,13 @@
-8:00 Am - draw plans for website layout.
+8:00 AM - draw plans for website layout.
 
-8:30 Am - 9:30 Am. speak with owner to discuss website layout.
+8:30 AM - 9:30 AM. speak with owner to discuss website layout.
 
-9:30 Am - 10:30 Am. still going over details.
+9:30 AM - 10:30 AM. still going over details.
 
-10:30 Am - 11:00 Am. looking at tutorials on Treehouse. 
+10:30 AM - 11:00 AM. looking at tutorials on Treehouse. 
 
-11:00 Am - 12:00 Am. TreeHouse tutorials.
+11:00 AM - 12:00 AM. TreeHouse tutorials.
+
+12:00 AM - 1:00 PM. Lunch
+
+1:00 PM - 1:30PM. TreeHouse Tutorials.
