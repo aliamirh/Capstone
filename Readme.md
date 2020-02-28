@@ -10,4 +10,6 @@
 
 12:00 AM - 1:00 PM. Lunch
 
-1:00 PM - 1:30PM. TreeHouse Tutorials.
+1:00 PM - 1:30 PM. TreeHouse Tutorials.
+
+1:30 PM - 2:30 PM. Talking over designs and color schemes.
