@@ -13,3 +13,5 @@
 1:00 PM - 1:30 PM. TreeHouse Tutorials.
 
 1:30 PM - 2:30 PM. Talking over designs and color schemes.
+
+2:30 PM - 3:00 PM. Youtube Design tutorials.
