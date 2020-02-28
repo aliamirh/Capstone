@@ -5,3 +5,5 @@
 9:30 Am - 10:30 Am. still going over details.
 
 10:30 Am - 11:00 Am. looking at tutorials on Treehouse. 
+
+11:00 Am - 12:00 Am. TreeHouse tutorials.
