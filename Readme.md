@@ -17,3 +17,5 @@
 2:30 PM - 3:00 PM. Youtube Design tutorials.
 
 3:00 PM - 4:00 PM. Still doing tutorials.
+
+4:00 PM - 4:30 PM. Done for today.
