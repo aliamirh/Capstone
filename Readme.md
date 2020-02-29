@@ -15,3 +15,5 @@
 1:30 PM - 2:30 PM. Talking over designs and color schemes.
 
 2:30 PM - 3:00 PM. Youtube Design tutorials.
+
+3:00 PM - 4:00 PM. Still doing tutorials.
